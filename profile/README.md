@@ -1,1 +1,1 @@
-Clear Cost is a financial solutions company that provides honest pricing for international trade. Our Clear Cost calculator shows the true price of goods before tariffs – something other businesses like Amazon hide. We believe in transparency, helping people see the real cost of what they buy. Simply put, we're against hidden fees and overpriced imports.
+
